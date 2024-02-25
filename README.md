@@ -7,7 +7,7 @@
 </div>
 
 
-<img align='right' src='https://count.getloli.com/get/@:simplebird02?theme=rule44' width='400px'>
+<img align='right' src='https://count.getloli.com/get/@:simplebird02?theme=rule34' width='400px'>
 
 <p align="center">
   <img src='[https://counter.seku.su/cmoe?name=fumiama&theme=r4](https://count.getloli.com/get/@:Minori-ty?theme=rule34)' width="400px">
